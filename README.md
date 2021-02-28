@@ -1,4 +1,4 @@
-### Fontes usada pela Apple
+### Fontes usadas pela Apple
 
 
 https://support.apple.com/pt-br/HT210192 <br>
